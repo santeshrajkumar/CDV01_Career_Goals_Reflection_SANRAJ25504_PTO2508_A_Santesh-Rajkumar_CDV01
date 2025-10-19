@@ -16,50 +16,38 @@ By completing this reflection, you will gain a clearer understanding of your car
 
 ### Personal Information
 
-- **Name:**
-- **Date:**
-- **Current Role/Position:**
-- **Field of Interest:**
+- **Name: Santesh Rajkumar**
+- **Date: 19/10/2025**
+- **Current Role/Position: Store Manager**
+- **Field of Interest: Coding**
 
 ### Part 1: Self-Assessment Reflection
 
 1. **Skills Analysis**:
     
-    - List your current skills and areas of expertise. 
-    Diesel Mechanics/Logistics Fleet Controller
-  
-    - Identify skills you need to develop or improve.
-
-     Computer literacy & Coding
+    - Diesel Mechanics/Logistics Fleet Controller
+    - Financial/Coding
 2. **Interests and Values**:
     
-    - Describe your key interests related to your career. 
-  
-      Career change transitions. My Key skills are problem solving and restoration of truck mechanics. I have a keen interest in Coding, as it is similar to problem solving along the lines of truck mechanics. I took an interest in Coding as it stimulates my curiosity just like Truck mechanics and truck restoration and rebuilding.
-  Culture, community & support
-      
-    - What values are important to you in a work environment?
-  
-    Culture, community & support
-
+    - Career change transitions. My Key skills are problem solving and restoration of truck mechanics. I have a keen interest in Coding, as it is similar to problem solving along the lines of truck mechanics. I took an interest in Coding as it stimulates my curiosity just like Truck mechanics and truck restoration and rebuilding.
+    - Culture, community & support
 ### Part 2: Career Exploration Insights
 
 1. **Industries and Roles Explored**:
     
-    - List the industries or roles you have researched.
-    - Note any particular areas that piqued your interest.
-      
+    - My working career started when I was 18 as an apprentice Diesel Mechanic. I also worked as a truck driver as part of my apprenticeship. I worked permanently as a Diesel Mechanic for 5 Years and then bought my own truck for subcontracting on the side as an extra income for a period of 7 years. I then joined a family business and been working as a store manager.
+    - Problem solving and customer services
 2. **Alignment with Personal Profile**:
     
-    - Reflect on how these industries/roles align with your skills, interests, and values.
-    - Identify any gaps or areas for further exploration.
+    - I have 20 years experince in my past positions and have good skills & experience so far. I like challenges and working in a team and am quite resilient when working under pressure. The Logistics enviroment is quite demanding, challenging and requires working under pressure.
+    - Growing in the path of Coding and working towards that.
 
 ### Part 3: SMART Career Goals
 
 1. **Short-term Goals** (Next 1-2 years):
     
-    - List your specific, measurable, achievable, relevant, and time-bound goals.
-    - Explain the rationale behind each goal.
+    - Study Coding for the next 2 years and create opportunities in lines of working remotely or freelancing. 
+    - Working & travelling while earning and income remotely.
 2. **Long-term Goals** (3-5 years and beyond):
     
     - Outline your long-term career aspirations.
